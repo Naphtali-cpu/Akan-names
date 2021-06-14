@@ -28,7 +28,7 @@ Here is my contact information;
 * Email- naphtali919@gmail.com
 * Mobile Number- +254727991993
 * Instagram @ _naphtalimakori
-* Facebook @ Naphtali McOrr
+* Facebook @ Naphtali McOrri
 * Linked In @ Naphtali Makori
 ## Licence
 Licenced by
